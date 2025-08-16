@@ -3,3 +3,4 @@
 for more info: 
 
 blog: https://nachiboin.blogspot.com/2025/08/multi-level-conveyor-in-simple.html 
+https://community.sw.siemens.com/s/feed/0D5Vb00000krGPTKA2
